@@ -1,4 +1,3 @@
-[README.md](https://github.com/user-attachments/files/31798841/README.md)
 # De la necesidad a la apuesta
 
 **Familias Peruanas R1 2026 · La Victoria Lab**  
